@@ -2,7 +2,7 @@
 
 Software engineer, systems thinker... 
 
-[!ari-what-is-love.mp4]
+![ari-what-is-love.mp4](ari-what-is-love.mp4)
 
 ... goofball.
 
