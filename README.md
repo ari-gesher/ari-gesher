@@ -2,7 +2,10 @@
 
 Software engineer, systems thinker... 
 
-![ari-what-is-love.mp4](ari-what-is-love.mp4)
+
+
+https://github.com/ari-gesher/ari-gesher/assets/161633962/df52d150-7f66-4235-8fdd-566739b7072b
+
 
 ... goofball.
 
